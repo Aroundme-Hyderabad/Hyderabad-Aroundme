@@ -1,4 +1,4 @@
-![Sample Image](https://images.app.goo.gl/r72CkEF99EcvyiFt8)
+![Sample Image](Blog.jpg)
 #Unveiling Hyderabad’s Hidden Gems with AroundMe
 Hyderabad, a city steeped in history and culture, is also a hub of vibrant local businesses waiting to be discovered. Whether you're a resident or a visitor, navigating Hyderabad's diverse offerings has never been easier, thanks to AroundMe. Here's how we're helping you uncover the city's hidden gems. 
 
